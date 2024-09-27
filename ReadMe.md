@@ -1,5 +1,5 @@
 # 💫 About Me:
-born in 2002, live in Tehran Iran as a young individual, I seek to<br>expand my knowledge by any means, including books, articles,<br>courses, and interacting with new subjects. I started my<br>professional career as a teenager to be ahead of my age. I am<br>punctual so I can spare time for myself. I like music and hanging<br>out with my friends.<br>
+born in 2002, live in Tehran Iran as a young individual, I seek to expand my knowledge by any means, including books, articles, courses, and interacting with new subjects. I started my professional career as a teenager to be ahead of my age. I am punctual so I can spare time for myself. I like music and hanging out with my friends.
 
 
 ## 🌐 Socials:
